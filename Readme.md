@@ -1,1 +1,1 @@
-![pawan Reddipalli Banner](https://https://github.com/pawanreddipalli/github-header-image.png)
+![pawan Reddipalli Banner](https://github.com/pawanreddipalli/pawanreddipalli/blob/main/github-header-image.png)
